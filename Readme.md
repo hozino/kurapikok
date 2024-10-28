@@ -1,2 +1,2 @@
 Грейпфрут обычно
-##### [ytj,sxysq](/tatarahapower)
+##### [ytj,sxysq](tatarahapower.md)
